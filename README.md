@@ -10,6 +10,6 @@
 
 ## About Me
 Answer the questions below
-* Something interesting about me is
-* Ask Mr. Vu anything:
-* List your sports and extracurriculars you participate in
+* Something interesting about me is i love matcha latte with oatmilk.
+* Ask Mr. Vu anything: Which University you went to
+* List your sports and extracurriculars you participate in: golf
